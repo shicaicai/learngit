@@ -1,5 +1,8 @@
 you are my sunshine 
 you are my sunshine
-make a new plan 
+make
+you are my shunshine
+a new plan 
+believe in yourself
 no relay on anybody 
 oneday i will become stronger.
